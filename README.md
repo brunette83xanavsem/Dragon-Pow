@@ -228,4 +228,4 @@ Dragon POW! is available as a **full free version** with all features and update
 Unleash your inner dragon and embark on an exciting adventure with **Dragon POW!** Download now and experience the thrill!
 
 ---
-**Last updated:** 2026-11-11 23:18:35 UTC
+**Last updated:** 2026-11-12 05:54:26 UTC
